@@ -1,3 +1,3 @@
 # projeto-X
 
-hahaha to rindo atoa
+hahaha to rindo a toa
